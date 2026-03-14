@@ -1,1 +1,1 @@
-这里是[carying-dev](https://github.com/carying-dev)的小号
+这里是[crazying-dev](https://github.com/crazying-dev)的小号
